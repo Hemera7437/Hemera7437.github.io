@@ -22,3 +22,9 @@ He returned to Kaer Morhen each winter to swap tales and rejuvenate for The Path
 * Minus the scar and hair color, Eskel and Geralt resemble one another like true brothers.
 * Eskel's hands emanate powerfully with magic, with more power than the White Wolf's.
 * On festive occasions, he would sport a beret adorned with pheasant feathers.
+
+> _"And the lord barons and village elders have their heads full of the war and don't have the time to defend their subjects.
+> They have to hire us. It's true. But from what Triss has been telling us all these evenings,
+> it seems the conflict with Nilfgaard is more serious than that, not just some local little war."_
+> 
+> pg. 57, Blood of Elves (UK edition)
