@@ -28,3 +28,7 @@ He returned to Kaer Morhen each winter to swap tales and rejuvenate for The Path
 > it seems the conflict with Nilfgaard is more serious than that, not just some local little war."_
 > 
 > pg. 57, Blood of Elves (UK edition)
+
+![Eskel vs Caranthir](eskelVsCaranthir.jpg)
+![My Picture of Eskel](eskel.jpg)
+<img src="https://vignette.wikia.nocookie.net/witcher/images/9/9b/Tw3_journal_eskel.png/revision/latest?cb=20160708060530" alt="Picture of Eskel from the Witcher Wiki"/>
